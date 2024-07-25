@@ -1,0 +1,1 @@
+# Next24Tech_My_Static_Portfolio
